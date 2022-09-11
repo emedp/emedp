@@ -15,4 +15,4 @@ Tengo el deseo de que mi marca esté comprometida a crear tecnología que facili
 -->
 
 ##
-**Encontrarás mi PÁGINA WEB en el panel izquierdo debajo de la foto de perfil. Descubre más sobre mí y de Emedpware**
+**Encontrarás mi PÁGINA WEB en el panel izquierdo debajo de la foto de perfil**
